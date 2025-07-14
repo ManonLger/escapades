@@ -382,13 +382,102 @@ Les insolites du jour :
 
 ![](J11_DSC00493.jpg) ![](J11_DSC00520.jpg)
 
-![](J11_DSC00544.jpg) ![](J11_DSC00552.jpg) 
+![Faut zoomer pour voir](J11_DSC00544.jpg) ![Notre voisine de chambrée](J11_DSC00552.jpg) 
 
 
 Oui, on a finalement trouvé un bivouac à côté des vaches. On y a siroté une petite bière après une baignade dans la rivière. On s'y est encore fait un copain chien d'ailleurs ! À cette heure, toutes les péripéties sont oubliées. Rendez-vous demain... 🌜
 
 >## J12 - Skadar 🇲🇪
 >*Vendredi 13 mai 2024*
+
+Le voici, le fameux bivouac au bord de l'eau !
+
+![Bien au bord de l'eau :-)](J12_DSC00553.jpg) ![Bien bien au bord de l'eau...](J12_DSC00559.jpg)
+
+Peut-être un peu trop au bord de l'eau ? 🙊
+
+![Joie du voyage à vélo n°5 : on vous présente le “bon plan Komoot”](J12_DSC00555.jpg)
+
+![À se demander pourquoi on s'est encombrés...](J12_DSC00558.jpg) ![...d'un vélo ;-)](J12_DSC00561.jpg)
+
+Après 3 heures à patauger dans le lac pour faire 5 km, on va sécher nos chaussettes... au café ! Café bien noir d'ailleurs, à la turque ou plutôt "à la bosnienne" comme on dit ici. Une ribambelle d'oiseaux nous y réconforte. 🐤
+
+![](J12_DSC00566.jpg)
+
+![](J12_DSC00562.jpg) ![](J12_DSC00564.jpg) ![](J12_DSC00574.jpg)
+
+![Drôle d'oiseau](J12_DSC00576.jpg) ![Apaisement bienvenu](J12_DSC00577.jpg) 
+
+Ellipse narrative : suite continue de tentatives de traverser le lac, toutes soldées par des échecs. Un chemin qui ne passe pas, un pont bien dangereux emprunté par une flopée de poids-lourds, un demi-tour tortueux, une autre route infructueuse... on trouve enfin une solution : prendre le train !
+
+![On y croise justement un chauffeur de poids lourds qui nous renseigne...](J12_DSC00578.jpg) ![...et nous offre l'appoint pour nos billets !](J12_DSC00580.jpg)
+
+Pleins de reconnaissance et après une nouvelle journée riche en aventures, on s'offre enfin une sortie sur le lac dans un moyen de transport adapté. 💙
+
+![](J12_DSC00582.jpg)
+
+![À peine sortis du chenal...](J12_DSC00585.jpg) ![...une belle rencontre nous attend !](J12_DSC00587.jpg)
+
+![Le voilà qui s'envole](J12_DSC00590.jpg) ![Peut-être pour rejoindre ses copains cormorans ?](J12_DSC00594.jpg)
+
+Suite de la visite naturaliste :
+
+![Jolie sterne](J12_DSC00607.jpg) ![Amusante grèbe huppée](J12_DSC00613.jpg) ![Rameuse attentive](J12_DSC00595.jpg)
+
+![Nénuphars à perte de vue](J12_DSC00631.jpg) ![Rameuse après baignade](J12_DSC00630.jpg) ![Coucher de soleil](J12_DSC00619.jpg)
+
+![Beauté](J12_DSC00628.jpg) ![Bonheur ♡](J12_DSC00593.jpg)
+
+On s'offre un resto au bord de l'eau, et on file au camping, pas le temps de chercher un meilleur emplacement !
+
+>## J13 - Skadar > Biogradska Gora 🇲🇪
+>*Samedi 14 mai 2024*
+
+Courte nuit aujourd'hui, car on veut sauter dans l'un des seuls trains de la journée pour monter au nord du **Monténégro**, vers la forêt primaire de **Biogradska Gora**. 🌳
+
+![On abandonne tout espoir de finir notre nuit quand on réalise qu'une colonie d'enfants a eu la même idée que nous](J13_DSC00633.jpg) ![En même temps c'est pas comme si nos vélos nous laissaient beaucoup de place...](J13_DSC00639.jpg) 
+
+![Allez hop, tout le monde descend !](J13_DSC00640.jpg)
+
+Nous voilà à **Kolašin**, mignonne station de sports d'hiver. L'occasion de prendre un café, et de passer à l'office du tourisme demander des conseils d'itinéraires vélo (on fait les choses bien non ?)
+
+![](J13_DSC00641.jpg) ![](J13_DSC00642.jpg)
+
+![Jusqu'ici tout allait bien...](J13_DSC00643.jpg) ![...mais quelques heures plus tard 😨](J13_DSC00646.jpg)
+
+On s'est obstinés un peu, mais c'est de pire en pire ! Un pur chemin de VTT, qui monte sans discontinuer dans des cailloux gros comme une tête. Heureusement, Komoot nous indique bientôt un "point d'info" : allez, du courage, on essaie d'aller au moins jusque là.
+
+![Ledit point d'info (...)](J13_DSC00645.jpg) ![Désespoir des troupes](J13_DSC00647.jpg)
+
+Que faire ? Redescendre ? Ce sera presque aussi pénible que la montée. Continuer ? Mais on ne sait pas comment on pourra redescendre de l'autre côté...
+
+On a choisi la montée !
+
+![AR-](J13_DSC00650.jpg) ![RI-](J13_DSC00655.jpg) ![VÉE !](J13_DSC00681.jpg)
+
+![Bien récompensée 🌼](J13_DSC00662.jpg)
+
+![](J13_DSC00656.jpg) ![](J13_DSC00670.jpg)
+
+Reste l'affaire de la descente. Après un jus de cassis offert par les tenanciers de petites cabanes "gîte nature", qui bricolent pour préparer la saison, et nous confirment que la seule route par ici est celle qu'on a empruntée (1h en 4x4 🚙), on s'attend au pire.
+
+Mais qu'à cela ne tienne, on est venus pour plonger au coeur de cette fameuse forêt !
+
+![Déjà c'est indiqué, ça commence bien non ?](J13_DSC00687.jpg) ![Et cette lumière verte est drôlement belle](J13_DSC00683.jpg) 
+
+![](J13_DSC00692.jpg) 
+
+On est bien vite tirés de notre contemplation par la difficulté de la tâche : il faut descendre un chemin de rando, en portant vélos et sacoches, par dessus des arbres tombés au milieu du chemin (forêt primaire oblige), et avec une sacrée pente !
+
+![Au début on laisse les sacoches sur le vélo...](J13_DSC00690.jpg) ![...puis on se rend compte qu'il va falloir faire des allers-retours](J13_DSC00693.jpg)
+
+![On finit, exténués, au milieu d'un champ d'ail des ours](J13_DSC00694.jpg) ![Et enfin, le lac au milieu de la forêt !](J13_DSC00702.jpg) 
+
+![](J13_DSC00699.jpg) 
+
+On a bien cru ne pas l’atteindre avant la nuit. Un panneau explicatif nous informe qu'on vient de faire 600m de D-, vélos et sacoches en main : belle perf les amis. 🙃
+
+Réconfort du jour : un couple de français croisés dans la descente (mais à pied, eux) nous ont attendus pour ouvrir la bière qu'il leur restait. On mange ensemble nos nouilles, en se racontant nos galères respectives de la journée. Du baume au coeur !
 
 
 
